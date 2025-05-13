@@ -5,3 +5,11 @@ making foot
 foot updates!
 i make body
 
+
+
+
+
+
+
+
+this is leg

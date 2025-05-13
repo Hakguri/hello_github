@@ -47,3 +47,8 @@ this is leg
 
 
 i made leg
+
+
+
+
+i have no idea beacuse i am not thinking

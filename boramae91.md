@@ -225,3 +225,9 @@ let me go home~~~~
 
 
 how to do git add cancel?
+
+
+how to do commit cancel?
+
+
+Time to say Good bye.

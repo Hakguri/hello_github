@@ -52,3 +52,8 @@ i made leg
 
 
 i have no idea beacuse i am not thinking
+
+
+
+
+now i am thinking
